@@ -4,7 +4,7 @@
 
 ShortMax adalah permainan mobile Android yang menarik, menggabungkan kegembiraan, teka-teki, dan aksi untuk membuat pemain terhibur selama berjam-jam. Apakah Anda suka tantangan yang merangsang otak atau permainan yang penuh aksi, **ShortMax Mod APK** memiliki semuanya. Dengan mengunduh versi modifikasi, Anda mendapatkan keuntungan dari fitur yang terbuka, sumber daya tak terbatas, dan pengalaman bermain tanpa gangguan iklan. Ini adalah permainan yang sempurna bagi mereka yang ingin naik level dalam bermain Android tanpa batasan.
 
-## Unduh Disini :⬇️ https://tinyurl.com/ja8w7r7d 📲
+## Unduh Disini :⬇️ https://tinyurl.com/36wr2b9w 📲
 ![image](https://github.com/user-attachments/assets/3e63a6e3-b5e0-4c87-b287-21091bf531aa)
 
 
